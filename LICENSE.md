@@ -1,4 +1,4 @@
-
+instant Script for math for brainrots offers the most advanced math for brainrots Script, with auto-farm and one-hit kill. Perfect for dominating any
 
 
 
